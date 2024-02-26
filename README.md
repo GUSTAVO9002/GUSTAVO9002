@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @GUSTAVO9002
 - 👀 I’m interested in learning new things and new challenges.
 - 🌱 I’m currently learning inglish and  Q.A enegirne tester.
-- 💞️ I’m looking to collaborate on a campy that gives me support from both sides for favorable growth for both.
+- 💞️ I’m looking to collaborate on a campy that there support from both sides for favorable growth for both.
 - 📫 How to reach me to contact me either by email or by call or whatsapp
 - email is:leitegustavo65@gmail.com, phone number 52-33-29-32-53-53
 - 😄 Pronouns:Gus 
